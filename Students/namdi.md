@@ -1,0 +1,1 @@
+Hi. My name is Nnamdi Okoro. I am a graduate of Bachelor of Technology, Statistics from Federal University of Technology, Minna, Niger State, Nigeria. I am a Tech. Enthusiast who advocates for user security awareness and also develop solutions wusing Web and Android platforms.
