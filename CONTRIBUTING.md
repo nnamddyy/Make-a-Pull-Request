@@ -9,6 +9,8 @@ SHUBHANGI PANDEY (https://github.com/meshubhangi)
 
 Filipe Ramalho (https://github.com/FilipeRamalho)
 
+Olorunishola Habeeb Bayo (https://github.com/habeex)
+
 KHUSHAL SHARMA (https://github.com/Logan1x)
 
 KAMAKSHI MANSUKHANI(https://github.com/kamakshimansukhani)
